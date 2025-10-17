@@ -39,4 +39,13 @@ https://www.mediafire.com/file/7m3yafjgvrufww4/PW_Clean.rar/file
 VEGAS Pro 2017:
 https://www.mediafire.com/file/igsxdz0plrk791r/VEGAS_Pro_17.0.rar/file
 
+AnkerGames:
+https://ankergames.net/games-list
+
+fmhy.net:
+https://fmhy.net/torrenting#torrent-sites
+
+Piracy Megathread:
+https://old.reddit.com/r/Piracy/wiki/megathread
+
 *I Recommend to Download and use IDM (Internet Download Manager) before download others files.
